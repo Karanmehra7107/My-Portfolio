@@ -1,3 +1,4 @@
+[karanMehra.pdf](https://github.com/Karanmehra7107/My-Portfolio/files/6150415/karanMehra.pdf)
 # My-Portfolio
 
 https://karanmehra7107.github.io/My-Portfolio/index.html
